@@ -1,2 +1,2 @@
-Welcome to my furniture Website.# octanet-january-2024
+the furniture Website for viewing and selling products.# octanet-january-2024
 octanet internship.
